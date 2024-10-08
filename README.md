@@ -1,0 +1,1 @@
+# Ojyn-avtomattary-teg-n-ojnajdy-2024
